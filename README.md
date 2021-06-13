@@ -13,6 +13,9 @@ SDK在上述百度网盘的：
 起点SDK/海思 Hi3516/电梯内电动车识别
 
 
-![image](kefu.jpg)
+作者微信![作者微信](kefu.jpg)  
 
-微信
+
+公众号![公众号](gongzhonghao.jpg) 
+
+
